@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning java and python and a teeny bit of HTML
 - 💞️ I’m looking to collaborate on fun code
   
-- 😄 Pronouns: idk what's a pronoun
+- 😄 Pronouns: Coolest guy in the world initttt
 - ⚡ Fun fact: i love blue jay (i know, mind-blowing)
 
 <!---
